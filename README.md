@@ -12,8 +12,9 @@
     <td style="vertical-align: top; text-align: left;">
       <ul>
         <li>i test and fuck shit up</li>
-        <li>i spent more money on monsters than i have braincells</li>
-        <li>🐈</li>
+        <li>im a monster addict</li>
+        <li>most of the time im high asf</li>
+        <li>i play games</li>
       </ul>
     </td>
     <td style="vertical-align: middle;">
